@@ -1,1 +1,1 @@
-# Exercito Brasileiro -Servico-de-Assistencia-Religiosa
+# Exercito Brasileiro -Serviço-de-Assistencia-Religiosa
